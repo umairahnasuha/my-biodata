@@ -41,7 +41,7 @@
 ### Kolej Matrikulasi Negeri Sembilan
 - Participant, Suked 2025
 
- ### SMKA Syeikh Abdullah Fahim
+ ### SMK Jelai (F)
  - 🥉 Netball Tournament
  - Participant, Forum 2025
  
