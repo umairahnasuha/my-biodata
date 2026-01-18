@@ -8,7 +8,7 @@
 **Kolej Matrikulasi Negeri Sembilan**  
 - Jurusan Sains Komputer 
 
-**SMKA Syeikh Abdullah Fahim**
+**SMK Jelai (F)**
 - Science Stream
 
 
